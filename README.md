@@ -8,3 +8,7 @@
 3d gym les2
 
 <img width="800" height="500" alt="bandicam2026-05-1413-24-13-789-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/572cd5a8-510e-4151-9a19-57ac277f44b6" />
+
+3d gym les3 
+
+<img width="800" height="500" alt="bandicam2026-05-2012-37-26-488-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/33ffdeb1-9878-44ec-9128-84760e8c8065" />
